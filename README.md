@@ -1,6 +1,6 @@
 ## ↪︎ Fabricio Andrade ⤵︎
 
-**` Futuro Desenvolvimento Back-end`**
+**`Futuro Desenvolvedor Back-end`**
 
 ↪︎  🎓 Estudante de Análise e Desenvolvimento de Sistemas 
 
